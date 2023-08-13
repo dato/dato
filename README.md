@@ -1,6 +1,6 @@
 #### _We will say of pure immanence that it is A LIFE, and nothing else._ —Gilles Deleuze
 
-I was born in 1982. Done pushing forty, now mainly interested in writing, teaching, and playing tennis. I was a Debian Developer many years ago, also worked at Google for a while. Queer feminist, infp sagittarius.
+I was born in 1982. Done pushing forty, now mainly interested in writing, teaching, and playing tennis. I was a Debian Developer once, used to work at Google too. Queer feminist, infp sagittarius.
 
 > Tu destino está en los demás  
 > tu futuro es tu propia vida  
